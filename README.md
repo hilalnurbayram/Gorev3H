@@ -1,3 +1,3 @@
 # Gorev3H
-![gorev](https://github.com/hilalnurbayram/Gorev3H/assets/124512583/ffd987d6-5a68-4a11-aea5-91798196f27c)
+![gorev3](https://github.com/hilalnurbayram/Gorev3H/assets/124512583/877f6ffb-4bfe-4b9f-9626-14cfa9353dab)
 
